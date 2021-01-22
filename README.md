@@ -1,1 +1,0 @@
-# speed-_typing_game
